@@ -23,3 +23,7 @@ I'd like to verify that thought and see if I'm delusional or not, below is my cl
 
 ##### 3. If you have a magic wand, what would you wish in regards of cyber security talent pool in Indonesia?
 **Context**: I can see that your company invested a lot in cultivating local talents, I genuinely want to see your company succeed in that.
+
+
+> [!NOTE]
+> I would be honored to have a video call with you. But if you're busy, linkedin chat discussing your company challenges would be awesome too. Thank you!
